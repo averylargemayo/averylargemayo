@@ -5,8 +5,7 @@
 
 
 *Hii This is a alt/spam follow account* 
-
+ㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ
 *Block if unwanted*ㅤ
 
-Main @yellowmugqs
 
