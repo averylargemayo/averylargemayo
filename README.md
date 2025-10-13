@@ -4,8 +4,5 @@
 ㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $${\color{red}" don't ~look ~down,~wanna ~come ~up? }$$
 
 
-*Hii This is a alt/spam follow account* 
-ㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ
-*Block if unwanted*ㅤ
 
 
