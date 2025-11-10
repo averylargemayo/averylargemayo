@@ -1,8 +1,6 @@
 
-<img width="900" height="636" alt="Untitled5_20251013105524" src="https://github.com/user-attachments/assets/81848f78-64e9-4110-8936-b370ef2b7e38" />
 
-ㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $${\color{red}" don't ~look ~down,~wanna ~come ~up?" }$$
-
+<img width="700" height="1000" alt="86209941" src="https://github.com/user-attachments/assets/6e9b28ab-4778-4d46-b9c2-d4ce9c138bce" />
 
 
 
